@@ -1,0 +1,2 @@
+# Pengumpulan-Poin
+Pengumpulan Poin
